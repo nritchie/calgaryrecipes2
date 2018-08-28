@@ -1,4 +1,4 @@
-##CHEESECAKE##
+## CHEESECAKE
 Make It
 Heat oven to 325ºF.
 Mix crumbs, 3 Tbsp. sugar and butter; press onto bottom of 9-inch springform pan. ...
